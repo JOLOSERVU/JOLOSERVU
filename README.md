@@ -1,7 +1,7 @@
 - 👋 Hi, We are @JOLOSERVU
 - 👀 We are interested in making Minecraft servers
 - 🌱 We are currently learning nothing
-- 💞️ We are looking to collaborate on ?
+- 💞️ We are looking to collaborate on yes of course
 - 📫 How to reach we Discord, YouTube, Instagram, Twitch
 - 😄 Pronouns: ...
 - ⚡ Fun fact: We are making the best finnish Minecraft server
